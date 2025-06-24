@@ -1,7 +1,8 @@
 <h2>二矿动漫官网入口 – 免费动漫在线观看网站|最新网址|下载</h2>
 <p>二矿动漫是一个专注于提供超高清画质动漫资源的在线平台。该网站以“宁缺毋滥”的理念为用户提供高质量的动漫观影体验。所有收录的动漫均为2K及以上画质，并经过专业团队手动修复，确保画质的完美呈现。虽然更新速度相对较慢，但每次上线的作品都能带来视觉与听觉上的震撼。平台的资源库涵盖热门日漫、经典国漫以及各类OVA、剧场版，品类丰富且持续扩充。截至2025年初，二矿动漫已收录超过160部动漫，所有资源均可免费观看，无任何强制广告插入。</p>
 <p><strong>一键访问：</strong><a href="https://www.litxdh.com/sites/er-kuang-dong-man.html"><strong>二矿动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan"  target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"  target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>超高清画质质量保障</strong> 二矿动漫所有资源均以2K及以上画质呈现，并由专业团队手动逐帧修复，保留原作的色彩层次与细节质感。这种画质处理方式确保用户在观看时能够享受到接近蓝光级别的视觉盛宴，无需担心画面模糊或卡顿问题。</p>
